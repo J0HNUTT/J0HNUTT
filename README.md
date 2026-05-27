@@ -2,14 +2,10 @@
 
 
 
-<img width="2500" height="1107" alt="Image" src="https://github.com/user-attachments/assets/b0cdd301-d3d2-475a-9372-ca6f9c999c05" />
+# <img width="2500" height="1107" alt="Image" src="https://github.com/user-attachments/assets/b0cdd301-d3d2-475a-9372-ca6f9c999c05" />
 
 
-
-<details>
-  <summary>info</summary> https://pronouns.cc/@HeathLedger https://adriandrels.straw.page/
-
-
+_____
 
 
 <img width="2500" height="521" alt="Image" src="https://github.com/user-attachments/assets/9aef933a-632a-4c07-b176-cd110955df49" />
