@@ -1,28 +1,20 @@
 <div align="center">
 
- 
-<img width="75" height="75" alt="Image" src="https://github.com/user-attachments/assets/97713bda-801e-422b-a9f8-27f92f4db63c" /><img width="75" height="75" alt="Image" src="https://github.com/user-attachments/assets/97713bda-801e-422b-a9f8-27f92f4db63c" /><img width="75" height="75" alt="Image" src="https://github.com/user-attachments/assets/97713bda-801e-422b-a9f8-27f92f4db63c" />
-<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/758874eb-bba5-4911-ac47-327d7122fd89" /><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/9da2f6ea-522a-42b5-bc06-6061dce0a70b" /><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/087cf51a-3464-4f18-b4c7-134101a6141e" /><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/200e021a-aa9a-419c-b74b-d0dcd2eddb6a" />
-
-<img width="531" height="20" alt="Image" src="https://github.com/user-attachments/assets/481dd7e4-9930-472d-b3f2-922c8f64dcb4" />
 
 
-<img width="601" height="21" alt="Image" src="https://github.com/user-attachments/assets/f7008520-e1fd-470f-86f8-646054a5bd16" />
+<img width="2500" height="1107" alt="Image" src="https://github.com/user-attachments/assets/b0cdd301-d3d2-475a-9372-ca6f9c999c05" />
 
-<img width="2218" height="420" alt="Image" src="https://github.com/user-attachments/assets/d4cc1f62-f7a0-49a1-b786-a424c183675d" />
+
 
 
 #  Don't steal my pony skin ideas and style, I value that, even though I've said it many times.  
 
 
-# <img width="1831" height="2384" alt="Image" src="https://github.com/user-attachments/assets/9dfc1703-25c4-4457-ad68-223184978314" />
 
- <img width="1280" height="51" alt="Image" src="https://github.com/user-attachments/assets/c1c21d06-9f02-4d1c-82d9-2526352bcb82" />
+
+<img width="2500" height="521" alt="Image" src="https://github.com/user-attachments/assets/9aef933a-632a-4c07-b176-cd110955df49" />
  
  ________________________________________
 
 
-<img width="442" height="74" alt="Image" src="https://github.com/user-attachments/assets/b2f30b6c-b31a-4e34-973c-dd4c0d17e030" />
-
-
-<img width="75" height="75" alt="Image" src="https://github.com/user-attachments/assets/97713bda-801e-422b-a9f8-27f92f4db63c" />
+<img width="2500" height="1107" alt="Image" src="https://github.com/user-attachments/assets/7dd10be2-b6d9-4ab0-a497-5617069b7514" />
