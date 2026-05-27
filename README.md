@@ -6,8 +6,8 @@
 
 
 
-
-#  Don't steal my pony skin ideas and style, I value that, even though I've said it many times.  
+<details>
+  <summary>info</summary> https://pronouns.cc/@HeathLedger https://adriandrels.straw.page/
 
 
 
