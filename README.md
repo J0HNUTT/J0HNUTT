@@ -10,4 +10,3 @@ ________________________
 .
 
 .
-<img width="1280" height="85" alt="Image" src="https://github.com/user-attachments/assets/9ff779fc-914a-420f-8e64-29a42d4b7d73" />
